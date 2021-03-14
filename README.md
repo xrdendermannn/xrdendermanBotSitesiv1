@@ -1,1 +1,1 @@
-# xrdendermanBotSitesiv1
+# Bu Bot Site AltYapisi XRD-ENDERMANA AITDIR
